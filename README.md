@@ -1,2 +1,2 @@
 # Recuriting-Assistant-for-HR-manager
-Video demonstration link -https://drive.google.com/file/d/13W4nf7N-KFfzYPkqT5Dkc5XdiQVjKB2h/view?usp=share_link
+Video demonstration link -https://drive.google.com/file/d/1GBi7S4gHT_spho46uac-puf9byyYbd70/view?usp=share_link
